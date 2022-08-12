@@ -14,7 +14,7 @@ Registration: [Alameda Recreation and Parks Department](https://anc.apm.activeco
 
 ## Emeryville
 ECCL Building A    
-4731 San Pablo Ave Emeryville, CA 94608    
+4731 San Pablo Ave, Emeryville, CA 94608    
 Adults (16+): Mondays 6-8pm    
 Youth (12 - 16): Mondays 6-7pm    
 More Info: [facebook.com/emeryville.iaido](https://www.facebook.com/emeryville.iaido)    
