@@ -1,8 +1,6 @@
-Muso Jikiden Eishin Ryu is a classical Japanese sword art that originated in the 16th century.    
-The purpose of Iaido practice is to develop awareness, calm mind, mental and physical harmony, and to achieve victory without drawing the sword.    
-Beginners welcome!    
+Muso Jikiden Eishin Ryu iaido is a classical Japanese martial art that is over 450 years old and focuses on using a katana to counter a surprise attack. Besides being an amazing living historical treasure, iaido is an excellent system for developing awareness, calm mind, and mental and physical harmony that will benefit people of all ages and abilities.
 
-Genwakan is an official dojo of [World MJER Iaido Federation 正統正流無雙直傳英信流居合道国際連盟](https://mjer-iaido.github.io/en/)
+Genwakan is an official dojo of [World MJER Iaido Federation 正統正流無雙直傳英信流居合道国際連盟](https://mjer-iaido.github.io/en/), an international federation created by one of Japan's finest sword practioners, [Esaka Seigen Sensei](https://mjer-iaido.github.io/en/about/#founder-esaka-seigen).
 
 ## Alameda
 ![Alameda](/assets/images/Alameda.jpg)    
