@@ -1,37 +1,23 @@
-## Welcome to GitHub Pages
+## 2023 North American seminar of World MJER Iaido Federation
 
-You can use the [editor on GitHub](https://github.com/genwakan/genwakan.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+**Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023    
+**Location**: Alameda High School, 2200 Central Ave, Alameda, CA 94501    
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### Seminar Schedule:
+**Day 1 (Friday, June 16):** 12pm-6pm (two 2-hour sessions with lunch break and free practice in between)    
+**Day 2 (Saturday, June 17):** 10am-4pm (two 2-hour sessions with lunch break and free practice in between)    
+**Day 3 (Sunday, June 18):** 9am-2pm (one 2-hour session, embukai, dan exam)    
 
-### Markdown
+### Instructors:    
+- TBD    
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Dan exam registration deadline: May 1st, 2023    
 
-```markdown
-Syntax highlighted code block
+Seminar Cost: $300 USD    
 
-# Header 1
-## Header 2
-### Header 3
+If you have any questions, please send an email to mikhailf@yahoo.com
 
-- Bulleted
-- List
+[Registration](https://forms.gle/aQEL4MHb9jvr4BUP7)
 
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/genwakan/genwakan.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+### Payment:
+- TBA
