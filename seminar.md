@@ -5,8 +5,8 @@
 
 ### Seminar Schedule:
 **Day 1 (Friday, June 16):** 12pm-6pm (seminar opening ceremony, session 1, lunch break, free practice, session 2)    
-**Day 2 (Saturday, June 17):** 10am-4pm (session 3, lunch break, free practice, session 4)    
-**Day 3 (Sunday, June 18):** 9am-2pm (session 5, embukai, dan exam, results announcement, seminar closing ceremony)    
+**Day 2 (Saturday, June 17):** 10am-5pm (session 3, lunch break, session 4, short break, Embukai)    
+**Day 3 (Sunday, June 18):** 9am-2pm (session 5, short break, dan exam, results announcement, seminar closing ceremony)    
 
 ### Instructors:    
 - TBD: we expect one Sensei from Japan to lead the seminar, assisted by Kokusai Renmei instructors from North America   
