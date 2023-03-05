@@ -29,6 +29,9 @@ We hope everyone is able to attend the entire seminar--because each practice ses
 - Also please check with your sensei regarding exact dan examination requirements: required waza, examination and certificate fees, other requirements.    
 - All dan examination fees are to be paid to Kokusai Renmei in Japanese Yen (cash) at the seminar.
 
+**Group Dinner:**
+We are planning to have a group dinner on Saturday, June 17th. Details TBA.
+
 **Accommodations:**    
 - There are a few hotels in Alameda, some are on [the Alameda (main) island](https://en.wikipedia.org/wiki/Alameda_(island)) (ZIP code 94501), but there is also [Bay Farm island](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California) (ZIP code 94502), which is close to Oakland airport.    
 - Also take a look at [airbnb.com](https://www.airbnb.com/)
@@ -43,7 +46,7 @@ We hope everyone is able to attend the entire seminar--because each practice ses
 
 ### Seminar Registration:
 Everyone who intends to attend the seminar must register online.    
-[**Please click here to register**](https://forms.gle/aQEL4MHb9jvr4BUP7)
+[**PLEASE CLICK HERE TO REGISTER**](https://forms.gle/aQEL4MHb9jvr4BUP7)
 
 ### Payment:
 - to save everyone's time at the seminar, if at all ppossible, please pay before the seminar by any of the following methods: Paypal (TBA), Zelle (TBA), Venmo (TBA)    
