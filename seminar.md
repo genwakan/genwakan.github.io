@@ -13,7 +13,7 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California)
 - Mochizai Shuichi Sensei, Hanshi 8th dan, assisted by Kokusai Renmei instructors from North America   
 
 **Seminar Cost:** $300 USD    
-We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments, and the seminar cost can be adjusted for your circumstatnces.
+We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and the seminar cost can be adjusted for your circumstatnces.
 
 **Dan Examination:** please register by **May 10th, 2023**    
 
