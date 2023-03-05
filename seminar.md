@@ -1,7 +1,7 @@
 ## 2023 North American seminar of World MJER Iaido Federation
 in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California)
 
-**Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023    
+**Dates**: June 16th (Friday) - 18th (Sunday), 2023    
 **Location**: Alameda High School (Patton Gym), 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
 
 ### Seminar Schedule:
@@ -34,14 +34,13 @@ Please register by **May 10th, 2023**
 - **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: **19**, **20**, **51A**. In case you are coming from San Francisco or someplace East Bay, you can take BART to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus **O**, **OX**, or **W**, which will take you to Alameda. In case you are staying on Bay Farm island,Again, check Google maps or similar for exact directons.
 
 
-
 **[Seminar Registration](https://forms.gle/aQEL4MHb9jvr4BUP7)**
 
 ### Payment:
 (1) If possible, to save everyone's time at the seminar, please pay before the seminar by any of the following methods: 
 - Paypal (TBA)
 - Zelle (TBA)
-- Venmo (TBA)
-(2) If you can't send payment by any of the above methods, you can pay at the seminar by cash.
+- Venmo (TBA)    
+(2) If you can't send your payment by any of the above methods, you can pay at the seminar by cash.
 
-If you have any questions, please send an email to alameda.iaido@gmail.com
+### If you have any questions, please send an email to alameda.iaido@gmail.com
