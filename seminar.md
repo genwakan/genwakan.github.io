@@ -21,12 +21,14 @@ Patton (Old) Gym at Alameda High School
 **Seminar Cost:** $300 USD    
 We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and we will try to adjust seminar cost for your circumstatnces.
 
+**Embukai (Demonstration):**    
+Everyone is invited to participate. Number of waza and other details TBA here and at the seminar.    
+
 **Dan Examination:**    
 - Please register by **May 10th, 2023**    
 - You must have your sensei's permission to take a dan examination.    
 - You must be a member of World MJER Iaido Federation (Kokusai Renmei) to take a dan examniation.    
-- If you are not a member yet, it might be possible to do so during the seminar--but please check with your sensei.   
-- Also please check with your sensei regarding exact dan examination requirements: required waza, examination and certificate fees, other requirements.    
+- Please check with your sensei regarding exact dan examination requirements: required waza, examination and certificate fees, any other requirements.    
 - All dan examination fees are to be paid to Kokusai Renmei in Japanese Yen (cash) at the seminar.
 
 **Group Dinner:**
