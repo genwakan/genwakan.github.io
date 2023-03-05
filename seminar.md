@@ -35,7 +35,9 @@ We hope everyone is able to attend the entire seminar--because each practice ses
 - **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: [**19**](https://www.actransit.org/bus-lines-schedules/19), [**20**](https://www.actransit.org/bus-lines-schedules/20), [**51A**](https://www.actransit.org/bus-lines-schedules/51A). In case you are coming from San Francisco or someplace East Bay, you can take [**BART**](https://www.bart.gov/) to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus [**O**](https://www.actransit.org/bus-lines-schedules/O), [**OX**](https://www.actransit.org/bus-lines-schedules/OX), or [**W**](https://www.actransit.org/bus-lines-schedules/W), all of which can take you to Alameda from downtown San Francisco. In case you are staying on Bay Farm island, buses [**21**](https://www.actransit.org/bus-lines-schedules/21) and [**OX**](https://www.actransit.org/bus-lines-schedules/OX) go between Bay Farm and main island, but possibly not as frequent as buses that serve main island. Again, check Google maps or similar for exact directons.
 
 
-**[Seminar Registration](https://forms.gle/aQEL4MHb9jvr4BUP7)**
+### Seminar Registration:
+Everyone who intends to attend the seminar must register online.
+[**Please click here to register**](https://forms.gle/aQEL4MHb9jvr4BUP7)
 
 ### Payment:
 - If possible, to save everyone's time at the seminar, please pay before the seminar by any of the following methods: Paypal (TBA), Zelle (TBA), Venmo (TBA)    
