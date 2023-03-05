@@ -1,8 +1,8 @@
 ## 2023 North American seminar of World MJER Iaido Federation
 in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **June 16th (Friday) - 18th (Sunday), 2023**
 
-### Instructors:    
-- Mochizai Shuichi Sensei, Hanshi 8th dan, assisted by Kokusai Renmei instructors from North America   
+### Instructor:    
+- Mochizai Shuichi Sensei, Hanshi 8th dan   
 
 **We invite you to attend.** Everyone is welcome at the seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
 
@@ -36,11 +36,11 @@ We hope everyone is able to attend the entire seminar--because each practice ses
 
 
 ### Seminar Registration:
-Everyone who intends to attend the seminar must register online.
+Everyone who intends to attend the seminar must register online.    
 [**Please click here to register**](https://forms.gle/aQEL4MHb9jvr4BUP7)
 
 ### Payment:
 - If possible, to save everyone's time at the seminar, please pay before the seminar by any of the following methods: Paypal (TBA), Zelle (TBA), Venmo (TBA)    
 - If you can't send your payment by any of the above methods, you can pay at the seminar by cash (USD).
 
-### If you have any questions, please send an email to alameda.iaido@gmail.com
+**If you have any questions, please send an email to alameda.iaido@gmail.com**
