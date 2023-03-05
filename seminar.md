@@ -22,9 +22,9 @@ We hope everyone is able to attend the entire seminar--because each practice ses
 **Improve your iaido.** Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from Mochizai Sensei, exactly the same as when visiting Japan. Attending the seminar will help you to reinforce correct techniques and will give a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Mochizai Sensei.
 
 **Accommodations:**
-- There are a few hotels in Alameda, some are on [the Alameda (main) island (Alameda, CA 94501)](https://en.wikipedia.org/wiki/Alameda_(island)), but there is also [Bay Farm island (Alameda, CA 94502)](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California), which is close to Oakland airport.    
+- There are a few hotels in Alameda, some are on [the Alameda (main) island](https://en.wikipedia.org/wiki/Alameda_(island)) (ZIP code 94501), but there is also [Bay Farm island](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California) (ZIP code 94502), which is close to Oakland airport.    
 - Also take a look at [airbnb.com](https://www.airbnb.com/)
-- Other possibilities could be the neighboring cities: Oakland, Emeryville, Berkeley.    
+- Other possibilities could be the neighboring cities, in particular, Oakland, Emeryville, and Berkeley.    
 - Consider travel distances to Alameda High School when booking your accommodations.    
 - You can get a good sense of time required if you use Google maps or similar.    
 
