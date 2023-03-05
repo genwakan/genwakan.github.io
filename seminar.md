@@ -21,7 +21,13 @@ Patton (Old) Gym at Alameda High School
 **Seminar Cost:** $300 USD    
 We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and the seminar cost can be adjusted for your circumstatnces.
 
-**Dan Examination:** please register by **May 10th, 2023**    
+**Dan Examination:**    
+- Please register by **May 10th, 2023**    
+- You must have your sensei's permission to take a Dan examination.    
+- You must be a member of World MJER Iaido Federation (Kokusai Renmei) to take a Dan examniation.    
+- If you are not a member yet, it is possible to join during the seminar--but please talk to your sensei first.   
+- Please check with your sensei regarding Dan examination requirements: required waza, examination and certificate fees, other requirements.    
+- All Dan examination fees are to be paid to Kokusai Renmei in Japanese Yen (cash) at the seminar.
 
 **Accommodations:**    
 - There are a few hotels in Alameda, some are on [the Alameda (main) island](https://en.wikipedia.org/wiki/Alameda_(island)) (ZIP code 94501), but there is also [Bay Farm island](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California) (ZIP code 94502), which is close to Oakland airport.    
