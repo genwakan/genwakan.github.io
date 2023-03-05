@@ -1,4 +1,5 @@
 ## 2023 North American seminar of World MJER Iaido Federation
+in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California)
 
 **Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023    
 **Location**: Alameda High School (Patton Gym), 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
@@ -11,17 +12,18 @@
 ### Instructors:    
 - Mochizai Shuichi Sensei, Hanshi 8th dan, assisted by Kokusai Renmei instructors from North America   
 
-**We invite you to attend.** Everyone is welcome at the 2023 Alameda Iaido Seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
-
-**Improve your iaido.** Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from and be instructed by Mochizai Sensei, just like in Japan. Attending the seminar will help you to reinforce correct techniques and will give a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Mochizai Sensei.
-
-
-**Dan exam registration deadline:** May 10th, 2023    
 **Seminar Cost:** $300 USD    
-We hope everyone is able to attend the entire seminar, but in case you are not able to, please let us know in the registration form comments and the seminar cost can be prorated.
+We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments, and the seminar cost can be adjusted for your circumstatnces.
+
+**Dan Examination:**    
+Please register by **May 10th, 2023**    
+
+**We invite you to attend.** Everyone is welcome at the seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
+
+**Improve your iaido.** Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from Mochizai Sensei, exactly the same as when visiting Japan. Attending the seminar will help you to reinforce correct techniques and will give a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Mochizai Sensei.
 
 **Accommodations:**
-- There are a few hotels in Alameda, some are on the main inland, but there is also Bay Farm island, which is close to Oakland airport.    
+- There are a few hotels in Alameda, some are on [the Alameda (main) island (Alameda, CA 94501)](https://en.wikipedia.org/wiki/Alameda_(island)), but there is also [Bay Farm island (Alameda, CA 94502)](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California), which is close to Oakland airport.    
 - Also take a look at [airbnb.com](https://www.airbnb.com/)
 - Other possibilities could be the neighboring cities: Oakland, Emeryville, Berkeley.    
 - Consider travel distances to Alameda High School when booking your accommodations.    
@@ -29,7 +31,7 @@ We hope everyone is able to attend the entire seminar, but in case you are not a
 
 **Access:**
 - **By car:** if you are driving, there should be no problem finding street parking nearby. There is also the school's parking lot, but we are not exactly sure yet if we are allowed to use it.
-- **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: **19**, **20**, **51A**. In case you are coming from San Francisco or someplace East Bay, you can take BART to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus **O**, **OX**, or **W**, which will take you to Alameda. Again, check Google maps or similar for exact directons.
+- **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: **19**, **20**, **51A**. In case you are coming from San Francisco or someplace East Bay, you can take BART to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus **O**, **OX**, or **W**, which will take you to Alameda. In case you are staying on Bay Farm island,Again, check Google maps or similar for exact directons.
 
 
 
