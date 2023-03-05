@@ -2,7 +2,7 @@
 in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **June 16th (Friday) - 18th (Sunday), 2023**
 
 ### Instructor:    
-- Mochizai Shuichi Sensei (Hanshi 8th dan)  
+- Mochizai Shuichi Sensei (Hanshi 8th dan) assisted by Kokusai Renmei instructors from North America  
 
 **We invite you to attend.** Everyone is welcome at the seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
 
