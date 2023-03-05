@@ -1,7 +1,6 @@
 ## 2023 North American seminar of World MJER Iaido Federation
 
-**Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023
-
+**Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023    
 **Location**: Alameda High School (Patton Gym), 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
 
 ### Seminar Schedule:
@@ -18,17 +17,19 @@
 
 
 **Dan exam registration deadline:** May 10th, 2023    
-**Seminar Cost:** $300 USD
+**Seminar Cost:** $300 USD    
 We hope everyone is able to attend the entire seminar, but in case you are not able to, please let us know in the registration form comments and the seminar cost can be prorated.
 
 **Accommodations:**
-There are a few hotels in Alameda, some are on the main inland, but there is also Bay Farm island, which close to Oakland airport.
-Other possibilities could be the neighboring cities: Oakland, Emeryville, Berkeley.
-Consider travel distances to Alameda High School when booking your accommodations.
-You can get a good sense of time required if you use Google maps or similar.
+- There are a few hotels in Alameda, some are on the main inland, but there is also Bay Farm island, which is close to Oakland airport.    
+- Also take a look at [airbnb.com](https://www.airbnb.com/)
+- Other possibilities could be the neighboring cities: Oakland, Emeryville, Berkeley.    
+- Consider travel distances to Alameda High School when booking your accommodations.    
+- You can get a good sense of time required if you use Google maps or similar.    
 
-**Access:** If you are driving, there should be no problem finding street parking nearby. There is also the school's parking lot, but we are not exactly sure yet if we are allowed to use it.
-**Public transportation:** There are several [AC transit](https://www.actransit.org/) buses that have stops within walking distance from Alameda High School: 19, 20, 51A.  
+**Access:**
+**- By car:** if you are driving, there should be no problem finding street parking nearby. There is also the school's parking lot, but we are not exactly sure yet if we are allowed to use it.
+**- By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: **19**, **20**, **51A**. In case you are coming from San Francisco or someplace East Bay, you can take BART to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus **O**, **OX**, or **W**, which will take you to Alameda. Again, check Google maps or similar for exact directons.
 
 
 
