@@ -1,6 +1,7 @@
 ## 2023 North American seminar of World MJER Iaido Federation
 
 **Dates**: June 16th (Friday), 17th (Saturday), and 18th (Sunday), 2023
+
 **Location**: Alameda High School (Patton Gym), 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
 
 ### Seminar Schedule:
