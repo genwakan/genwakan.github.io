@@ -9,7 +9,13 @@
 **Day 3 (Sunday, June 18):** 9am-2pm (session 5, short break, dan exam, results announcement, seminar closing ceremony)    
 
 ### Instructors:    
-- TBD: we expect one Sensei from Japan to lead the seminar, assisted by Kokusai Renmei instructors from North America   
+- Mochizai Shuichi Sensei, Hanshi 8th dan, assisted by Kokusai Renmei instructors from North America   
+
+
+## We invite you to attend. Everyone is welcome at the 2023 Alameda Iaido Seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
+
+## Improve your iaido. Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from and be instructed by senseis from Japan. Being taught by these senseis will help reinforce correct techniques and will give you a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Esaka Sensei, and the other senseis from Japan.
+
 
 **Dan exam registration deadline:** May 1st, 2023    
 **Seminar Cost:** $300 USD    
