@@ -15,8 +15,7 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California)
 **Seminar Cost:** $300 USD    
 We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments, and the seminar cost can be adjusted for your circumstatnces.
 
-**Dan Examination:**    
-Please register by **May 10th, 2023**    
+**Dan Examination:** please register by **May 10th, 2023**    
 
 **We invite you to attend.** Everyone is welcome at the seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
 
@@ -31,16 +30,13 @@ Please register by **May 10th, 2023**
 
 **Access:**
 - **By car:** if you are driving, there should be no problem finding street parking nearby. There is also the school's parking lot, but we are not exactly sure yet if we are allowed to use it.
-- **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: **19**, **20**, **51A**. In case you are coming from San Francisco or someplace East Bay, you can take BART to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus **O**, **OX**, or **W**, which will take you to Alameda. In case you are staying on Bay Farm island,Again, check Google maps or similar for exact directons.
+- **By public transportation:** there are several [AC transit](https://www.actransit.org/) local buses that have stops within walking distance from Alameda High School: [**19**](https://www.actransit.org/bus-lines-schedules/19), [**20**](https://www.actransit.org/bus-lines-schedules/20), [**51A**](https://www.actransit.org/bus-lines-schedules/51A). In case you are coming from San Francisco or someplace East Bay, you can take [BART](https://www.bart.gov/) to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from San Francisco is to take a Transbay bus [**O***](https://www.actransit.org/bus-lines-schedules/O), [**OX***](https://www.actransit.org/bus-lines-schedules/OX), or [**W***](https://www.actransit.org/bus-lines-schedules/W), all of which can take you to Alameda from downtown San Francisco. In case you are staying on Bay Farm island, buses [**21**](https://www.actransit.org/bus-lines-schedules/21) and [**OX***](https://www.actransit.org/bus-lines-schedules/OX) go between Bay Farm and main island, but possibly not as frequent as buses that serve main island. Again, check Google maps or similar for exact directons.
 
 
 **[Seminar Registration](https://forms.gle/aQEL4MHb9jvr4BUP7)**
 
 ### Payment:
-(1) If possible, to save everyone's time at the seminar, please pay before the seminar by any of the following methods: 
-- Paypal (TBA)
-- Zelle (TBA)
-- Venmo (TBA)    
-(2) If you can't send your payment by any of the above methods, you can pay at the seminar by cash.
+- If possible, to save everyone's time at the seminar, please pay before the seminar by any of the following methods: Paypal (TBA), Zelle (TBA), Venmo (TBA)    
+- If you can't send your payment by any of the above methods, you can pay at the seminar by cash (USD).
 
 ### If you have any questions, please send an email to alameda.iaido@gmail.com
