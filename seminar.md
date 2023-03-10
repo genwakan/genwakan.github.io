@@ -19,7 +19,7 @@ Patton (Old) Gym at Alameda High School
 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
 
 **Seminar Cost:** $300 USD    
-We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and we will try to adjust seminar cost for your circumstatnces.
+We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and we will try to adjust seminar cost for your circumstances.
 
 **Embukai (Demonstration):**    
 Everyone is invited to participate. Number of waza and other details TBA here and at the seminar.    
@@ -41,9 +41,8 @@ We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 - Consider travel distances to Alameda High School when booking your accommodations.    
 - You can get a good sense of time required if you use Google maps or similar.    
 
-**Access:**    
 - **By car:** if you are driving, there should be no problem finding street parking nearby. There is also the school's parking lot, but we are not exactly sure yet if we are allowed to use it.
-- **By public transportation:** there are several [**AC transit**](https://www.actransit.org/) buses that have stops within walking distance from Alameda High School: [**19**](https://www.actransit.org/bus-lines-schedules/19), [**20**](https://www.actransit.org/bus-lines-schedules/20), [**51A**](https://www.actransit.org/bus-lines-schedules/51A). In case you are coming from San Francisco or East Bay, you can take [**BART**](https://www.bart.gov/) to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from downtown San Francisco is to take a Transbay bus [**O**](https://www.actransit.org/bus-lines-schedules/O), [**OX**](https://www.actransit.org/bus-lines-schedules/OX), or [**W**](https://www.actransit.org/bus-lines-schedules/W), which can take you to Alameda. In case you are staying on Bay Farm island, take a look at buses [**21**](https://www.actransit.org/bus-lines-schedules/21) and [**OX**](https://www.actransit.org/bus-lines-schedules/OX), but these might be less frequent than others. Again, check Google maps or similar for exact directons.
+- **By public transportation:** there are several [**AC transit**](https://www.actransit.org/) buses that have stops within walking distance from Alameda High School: [**19**](https://www.actransit.org/bus-lines-schedules/19), [**20**](https://www.actransit.org/bus-lines-schedules/20), [**51A**](https://www.actransit.org/bus-lines-schedules/51A). In case you are coming from San Francisco or East Bay, you can take [**BART**](https://www.bart.gov/) to either Oakland 12th St station or to Fruitvale station and transfer to a local bus (19, 20, 51A). Another possibility from downtown San Francisco is to take a Transbay bus [**O**](https://www.actransit.org/bus-lines-schedules/O), [**OX**](https://www.actransit.org/bus-lines-schedules/OX), or [**W**](https://www.actransit.org/bus-lines-schedules/W), which can take you to Alameda. In case you are staying on Bay Farm island, take a look at buses [**21**](https://www.actransit.org/bus-lines-schedules/21) and [**OX**](https://www.actransit.org/bus-lines-schedules/OX), but these might be less frequent than others. Again, check Google maps or similar for exact directions.
 
 
 ### Seminar Registration:
@@ -51,7 +50,7 @@ We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 - All participants are required to complete and sign [**AGREEMENT AND RELEASE FROM LIABILITY**](https://genwakan.github.io/Seminar_Liability_2023.pdf). Please email completed form to [alameda.iaido@gmail.com](mailto:alameda.iaido@gmail.com).
 
 ### Payment and Refunds:
-- to save everyone's time at the seminar, if at all ppossible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), [PayPal](https://paypal.me/mikhailfaiguenblat), or [Venmo](https://account.venmo.com/u/Alameda-Iaido). **Important: when using PayPal or Venmo, please use send money "For friends and family" and NOT payment for purchases!!!**    
+- to save everyone's time at the seminar, if at all possible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), [PayPal](https://paypal.me/mikhailfaiguenblat), or [Venmo](https://account.venmo.com/u/Alameda-Iaido). **Important: when using PayPal or Venmo, please use send money "For friends and family" and NOT payment for purchases!!!**    
 - If you can't send your payment by any of the above methods, you can pay at the seminar by cash (USD).
 - If your plans change and you cannot attend the seminar, your payment will be refunded.
 
