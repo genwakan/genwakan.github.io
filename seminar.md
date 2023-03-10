@@ -51,7 +51,7 @@ We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 - All participants are required to complete and sign [**AGREEMENT AND RELEASE FROM LIABILITY**](https://genwakan.github.io/Seminar_Liability_2023.pdf). Please email completed form to [alameda.iaido@gmail.com](mailto:alameda.iaido@gmail.com).
 
 ### Payment:
-- to save everyone's time at the seminar, if at all ppossible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), PayPal (alameda.iaido@gmail.com), Venmo (alameda.iaido@gmail.com) **Important: when using PayPal or Venmo, please use send money "For frineds and family" and NOT payment for purchases!!!**    
+- to save everyone's time at the seminar, if at all ppossible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), [PayPal](https://paypal.me/mikhailfaiguenblat), Venmo (alameda.iaido@gmail.com) **Important: when using PayPal or Venmo, please use send money "For frineds and family" and NOT payment for purchases!!!**    
 - If you can't send your payment by any of the above methods, you can pay at the seminar by cash (USD).
 
 **If you have any questions, please send an email to [alameda.iaido@gmail.com](mailto:alameda.iaido@gmail.com)**
