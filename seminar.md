@@ -4,8 +4,6 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **Ju
 ### Instructor:    
 - Mochizai Shuichi Sensei (Hanshi 8th dan) assisted by Kokusai Renmei instructors from North America  
 
-**We invite you to attend.** Everyone is welcome at the seminar. Whether you are new to iaido or have many years of experience, whether you practice regularly or are looking for a great way to get back into iaido, or whether you are from a different martial art, style, or organization, we invite you and welcome you to attend this unique and special iaido seminar. We look forward to seeing you.
-
 **Improve your iaido.** Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from Mochizai Sensei, exactly the same as when visiting Japan. Attending the seminar will help you to reinforce correct techniques and will give a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Mochizai Sensei.
 
 ### Seminar Details:
@@ -53,6 +51,6 @@ We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 ### Payment and Refunds:
 - to save everyone's time at the seminar, if at all possible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), [PayPal](https://paypal.me/mikhailfaiguenblat), or [Venmo](https://account.venmo.com/u/Alameda-Iaido). **Important: when using PayPal or Venmo, please use send money "For friends and family" and NOT payment for purchases!!!**    
 - If you can't send your payment by any of the above methods, you can pay at the seminar by cash (USD).
-- If your plans change and you cannot attend the seminar, your payment will be refunded.
+- If your plans change and for some reason you cannot attend the seminar, please let us know, and your payment will be refunded.
 
 **If you have any questions, please send an email to [alameda.iaido@gmail.com](mailto:alameda.iaido@gmail.com)**
