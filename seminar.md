@@ -1,6 +1,8 @@
 ## 2023 North American seminar of World MJER Iaido Federation
 in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **June 16th (Friday) - 18th (Sunday), 2023**
 
+![Mochizai Sensei](/assets/images/336919724_576871594393144_550731999143539377_n.jpg)
+
 ### Instructor:    
 - Mochizai Shuichi Sensei (Hanshi 8th dan) assisted by Kokusai Renmei instructors from North America  
 
