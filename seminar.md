@@ -48,7 +48,7 @@ We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 ### Seminar Registration:
 - Currently registration is open to members of Kokusai Renmei affiliated dojo only
 - Everyone who intends to attend the seminar must register online. [**PLEASE CLICK HERE TO REGISTER**](https://forms.gle/aQEL4MHb9jvr4BUP7)   
-- All participants are required to complete and sign [**AGREEMENT AND RELEASE FROM LIABILITY**](https://genwakan.github.io/Seminar_Liability_2023.pdf). Please email completed form to [alameda.iaido@gmail.com](mailto:alameda.iaido@gmail.com).
+- All participants are required to complete and sign [**AGREEMENT AND RELEASE FROM LIABILITY**](https://genwakan.github.io/Seminar_Liability_2023.pdf).    
 
 ### Payment and Refunds:
 - to save everyone's time at the seminar, if at all possible, please pay before the seminar by any of the following methods: Zelle (alameda.iaido@gmail.com), [PayPal](https://paypal.me/mikhailfaiguenblat), or [Venmo](https://account.venmo.com/u/Alameda-Iaido). **Important: when using PayPal or Venmo, please use send money "For friends and family" and NOT payment for purchases!!!**    
