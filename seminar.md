@@ -4,7 +4,7 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **Ju
 ![Mochizai Sensei](/assets/images/336919724_576871594393144_550731999143539377_n.jpg)
 
 ### Instructor:    
-- Mochizai Shuichi Sensei (Hanshi 8th dan) assisted by Kokusai Renmei instructors from North America  
+- **Mochizai Shuichi Sensei (Hanshi 8th dan)** assisted by Kokusai Renmei instructors from North America  
 
 **Improve your iaido.** Attending a seminar is one of the best ways to sharpen your skills in iaido. For those of you who have been away from iaido for a while, it is also the best way to catch up. You will have the opportunity to learn from Mochizai Sensei, exactly the same as when visiting Japan. Attending the seminar will help you to reinforce correct techniques and will give a new or different perspective on what you can improve upon. We encourage everyone to take this opportunity to benefit from the skill and wisdom of Mochizai Sensei.
 
