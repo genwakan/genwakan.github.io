@@ -31,8 +31,7 @@ Everyone is invited to participate. Number of waza and other details TBA here an
 - Please check with your sensei regarding exact dan examination requirements: required waza, examination and certificate fees, any other requirements.    
 - All dan examination fees are to be paid to Kokusai Renmei in Japanese Yen (cash) at the seminar.
 
-**Group Dinner:**    
-We are planning to have a group dinner on Saturday, June 17th. Details TBA.
+**Group Dinner:** We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 
 **Airports:** SFO, OAK, SJC (check the prices and flight schedules for all three)
 
