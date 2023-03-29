@@ -34,6 +34,8 @@ Everyone is invited to participate. Number of waza and other details TBA here an
 **Group Dinner:**    
 We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 
+**Airports:** SFO, OAK, SJC (check the prices and flight schedules for all three)
+
 **Accommodations:**    
 - There are a few hotels in Alameda, some are on [the Alameda (main) island](https://en.wikipedia.org/wiki/Alameda_(island)) (ZIP code 94501), but there is also [Bay Farm island](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California) (ZIP code 94502), which is close to Oakland airport.    
   Recommended Hotel: [**Hawthorn Suites By Wyndham**](https://www.oaklandhs.com/) 1628 Webster St, Alameda, CA 94501 [Map](https://goo.gl/maps/sGXRcMHjv4A5d2oa7)    
