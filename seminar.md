@@ -38,7 +38,7 @@ Everyone is invited to participate. Number of waza and other details TBA here an
 **Accommodations:**    
 - There are a few hotels in Alameda, some are on [the Alameda (main) island](https://en.wikipedia.org/wiki/Alameda_(island)) (ZIP code 94501), but there is also [Bay Farm island](https://en.wikipedia.org/wiki/Bay_Farm_Island,_Alameda,_California) (ZIP code 94502), which is close to Oakland airport.    
   Recommended Hotel: [**Hawthorn Suites By Wyndham**](https://www.oaklandhs.com/) 1628 Webster St, Alameda, CA 94501 [Map](https://goo.gl/maps/sGXRcMHjv4A5d2oa7)    
-  We have a special corporate rate at **Hawthorn Suites** available to all seminar participants. Please check with your sensei: they have the info on how to make reservation and get the special rate.
+  We have a special corporate rate at **Hawthorn Suites** available to all seminar participants. Please check with your sensei: they have the info on how to make reservations and get the special rate.
 - Also take a look at [airbnb.com](https://www.airbnb.com/)
 - Other possibilities could be the neighboring cities, in particular, Oakland, Emeryville, and Berkeley.    
 - Consider travel distances to Alameda High School when booking your accommodations.    
