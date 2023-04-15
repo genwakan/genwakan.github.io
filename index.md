@@ -2,7 +2,7 @@
 
 Genwakan is an official dojo of [World MJER Iaido Federation 正統正流無雙直傳英信流居合道国際連盟](https://mjer-iaido.github.io/en/), an international federation created by one of Japan's finest sword practioners, [Esaka Seigen Sensei](https://mjer-iaido.github.io/en/about/#founder-esaka-seigen).
 
-**[2023 North American seminar of World MJER Iaido Federation](/seminar)
+**[2023 North American seminar of World MJER Iaido Federation](/seminar)**
 
 ## Alameda
 ![Alameda](/assets/images/Alameda.jpg)    
