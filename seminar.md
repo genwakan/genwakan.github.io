@@ -11,7 +11,8 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **Ju
 ### Seminar Details:
 **Schedule:**    
 - **Day 1 (Friday, June 16):** 12pm-6pm (seminar opening ceremony, session 1, lunch break, session 2)    
-- **Day 2 (Saturday, June 17):** 10am-5pm (session 3, lunch break, session 4, Embukai)    
+                               7pm-9pm Welcome Dinner at [Abigail's Moroccan Cuisine](https://abigailsalameda.com/)
+- **Day 2 (Saturday, June 17):** 10am-6pm (session 3, lunch break, session 4, Embukai)    
 - **Day 3 (Sunday, June 18):** 9am-2pm (session 5, Dan Examination, results announcement, seminar closing ceremony)    
 
 **Location:**    
@@ -30,8 +31,6 @@ Everyone is invited to participate. Number of waza and other details TBA here an
 - You must be a member of World MJER Iaido Federation (Kokusai Renmei) to take a dan examniation.    
 - Please check with your sensei regarding exact dan examination requirements: required waza, examination and certificate fees, any other requirements.    
 - All dan examination fees are to be paid to Kokusai Renmei in Japanese Yen (cash) at the seminar.
-
-**Group Dinner:** We are planning to have a group dinner on Saturday, June 17th. Details TBA.
 
 **Airports:** SFO, OAK, SJC (check the prices and flight schedules for all three)
 
