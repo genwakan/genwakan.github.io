@@ -18,7 +18,7 @@ in [Alameda, California](https://en.wikipedia.org/wiki/Alameda,_California) **Ju
 Patton (Old) Gym at Alameda High School    
 2267 Alameda Ave, Alameda, CA 94501, USA [Map](https://goo.gl/maps/UtrPW2up4xpmoCks8)
 
-**Seminar Cost:** $300 USD    
+**Seminar Cost:** $250 USD    
 We hope everyone is able to attend the entire seminar--because each practice session will be different, but in case this is not possible for you, please let us know in the registration form comments and we will try to adjust seminar cost for your circumstances.
 
 **Embukai (Demonstration):**    
