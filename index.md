@@ -9,7 +9,7 @@ Genwakan is an official dojo of [World MJER Iaido Federation 正統正流無雙�
 Adult (16+) classes: Th 6-7:30pm and Sa 3-4:30pm    
 Youth (10 - 16) classes: Th 4:50-5:50pm    
 More Info: [facebook.com/alameda.iaido](https://www.facebook.com/alameda.iaido)    
-Registration at Alameda Recreation and Parks Department: [Youth classes](https://anc.apm.activecommunities.com/alamedarecreation/activity/search?onlineSiteId=0&activity_select_param=2&activity_category_ids=45&activity_keyword=youth%20iaido&viewMode=list); [Adult classes](https://anc.apm.activecommunities.com/alamedarecreation/activity/search?onlineSiteId=0&activity_select_param=2&activity_category_ids=45&activity_keyword=muso%20jikiden%20eishin%20ryu&viewMode=list)
+Registration at Alameda Recreation and Parks Department: [Youth classes](https://anc.apm.activecommunities.com/alamedarecreation/activity/search?onlineSiteId=0&activity_select_param=2&activity_category_ids=45&activity_keyword=youth%20iaido&viewMode=list); [Adult classes](https://anc.apm.activecommunities.com/alamedarecreation/activity/search?onlineSiteId=0&activity_select_param=2&activity_category_ids=45&min_age=18&activity_keyword=muso%20jikiden%20eishin%20ryu&viewMode=list)
 
 ## Emeryville
 ![Emeryville](/assets/images/Emeryville.jpg)    
