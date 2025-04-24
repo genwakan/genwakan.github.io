@@ -18,4 +18,4 @@ Registration at Alameda Recreation and Parks Department: [Youth classes](https:/
 Adults (16+): Mondays 6-8pm    
 Youth (10 - 16): Mondays 6-7pm    
 More Info: [facebook.com/emeryville.iaido](https://www.facebook.com/emeryville.iaido)    
-Registration: [Emeryville Community Services Department](https://secure.rec1.com/CA/emeryville-ca/catalog/index/86609cb721c3cd83721f116a6712dd26?filter=c2VhcmNoPWlhaWRv)
+Registration: [rec.us/emeryville](https://www.rec.us/organizations/emeryville?tab=programs&activityIDs=4098fbbd-191e-421a-a4e3-53cc2ae8fdc4)
