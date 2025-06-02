@@ -26,4 +26,4 @@ Registration: [rec.us/emeryville](https://www.rec.us/organizations/emeryville?ta
 700 College Ave, Kentfield, CA 94904**  [Map](https://maps.app.goo.gl/mSZYsUKu9rEB6ztt9)  
 Wednesdays 6:40-8:30pm    
 More Info: [instagram.com/iaidomarin](https://www.instagram.com/iaidomarin)    
-Registration: [marin.edu/communityed](https://marin.edu/communityed)
+Registration: [rec.us/emeryville](https://marin.edu/communityed)
