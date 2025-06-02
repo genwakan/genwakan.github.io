@@ -14,8 +14,16 @@ Registration at Alameda Recreation and Parks Department: [Youth classes](https:/
 ## Emeryville
 ![Emeryville](/assets/images/Emeryville.jpg)    
 **ECCL Building A    
-4731 San Pablo Ave, Emeryville, CA 94608**  [Map]()  
+4731 San Pablo Ave, Emeryville, CA 94608**  [Map](https://maps.app.goo.gl/PgfhJCwezYsxeJDC9)  
 Adults (16+): Mondays 6-8pm    
 Youth (10 - 16): Mondays 6-7pm    
 More Info: [facebook.com/emeryville.iaido](https://www.facebook.com/emeryville.iaido)    
 Registration: [rec.us/emeryville](https://www.rec.us/organizations/emeryville?tab=programs&activityIDs=4098fbbd-191e-421a-a4e3-53cc2ae8fdc4)
+
+## College of Marin
+![College of Marin](/assets/images/CoM.jpg)    
+**Diamond Physical Education Center @ College of Marin    
+700 College Ave, Kentfield, CA 94904**  [Map](https://maps.app.goo.gl/mSZYsUKu9rEB6ztt9)  
+Wednesdays 6:40-8:30pm    
+More Info: [instagram.com/iaidomarin](https://www.instagram.com/iaidomarin)    
+Registration: [rec.us/emeryville](https://marin.edu/communityed)
