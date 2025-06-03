@@ -18,5 +18,10 @@ h2 {
 }
 
 a.white-link {
-  color: white !important;
+  color: white;
+}
+
+a.white-link:hover {
+  color: red;
+  text-decoration: none; /* optional */
 }
