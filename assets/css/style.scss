@@ -8,7 +8,7 @@ body {
 }
 
 #header_wrap .inner {
-  padding: 1px 1px 1px 1px;
+  padding: 1px 10px 1px 10px; /* top, right, bottom, left */
 }
 
 #main_content {
@@ -23,9 +23,9 @@ h2 {
 
 #project_tagline{
     margin: 0 0;
-    letter-spacing: -1.2px;
+    font-family: "Arial Narrow", Arial, sans-serif;
     color:#fff;
-    font-size:23px;
+    font-size:27px;
     background:none;
     text-shadow:#111 0px 0px 10px
 }
