@@ -8,7 +8,11 @@ body {
 }
 
 #header_wrap .inner {
-  padding: 15px 5px 10px 5px;
+  padding: 1px 1px 1px 1px;
+}
+
+#main_content {
+  padding-top: 5px;
 }
 
 h2 {
@@ -18,11 +22,10 @@ h2 {
 }
 
 #project_tagline{
-    margin: 0px 0;
-    letter-spacing: -1.5px;
+    margin: 0 0;
+    letter-spacing: -1.2px;
     color:#fff;
-    font-size:24px;
-    font-weight:300;
+    font-size:23px;
     background:none;
     text-shadow:#111 0px 0px 10px
 }
@@ -33,11 +36,11 @@ h2 {
 }
 
 #nav_bar a {
-  margin: 0 5px;
+  margin: 0 0;
   color: white;
   text-decoration: none;
   font-size: 20px;
-  transition: color 0.2s ease;
+  transition: color 0.3s ease;
 }
 
 #nav_bar a:hover {
