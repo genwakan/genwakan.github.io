@@ -1,8 +1,10 @@
-**Muso Jikiden Eishin Ryu** iaido is a classical Japanese martial art that is over 450 years old and focuses on using a katana to counter a surprise attack. Besides being an amazing living historical treasure, iaido is an excellent system for developing awareness, calm mind, and mental and physical harmony that will benefit people of all ages and abilities.
+**Muso Jikiden Eishin Ryu iaido** is a classical Japanese martial art with a history of over 450 years, rooted in the traditions of the samurai. This refined form of Japanese swordsmanship focuses on responding to surprise attacks with precise, fluid movements using the katana.<br>
+At the core of iaido practice are waza--pre-arranged solo forms that simulate real-world combat scenarios. They emphasize the smooth drawing, cutting, and sheathing of the sword, while developing mindfulness, discipline, and physical control.<br>
+More than a martial art, Muso Jikiden Eishin Ryu is a living historical tradition and a path to personal growth. It cultivates mental clarity, calmness, and physical harmony--making it accessible and valuable to people of all ages and abilities.
 
-**Genwakan** is an official dojo of [World MJER Iaido Federation 正統正流無雙直傳英信流居合道国際連盟](https://mjer-iaido.github.io/en/), an international federation created by one of Japan's finest sword practioners, [Esaka Seigen Sensei](https://mjer-iaido.github.io/en/about/#founder-esaka-seigen), and currently headed by [Kobara Kenichi Sensei](https://mjer-iaido.github.io/en/about/#chairman-kobara-kenichi).
+**World MJER Iaido Federation** (Seito Seiryu Muso Jikiden Eishin Ryu Iaido Kokusai Renmei 正統正流無雙直傳英信流居合道国際連盟) is an international federation created by one of Japan's finest sword practioners, [Esaka Seigen Sensei](https://mjer-iaido.github.io/en/about/#founder-esaka-seigen), and currently headed by [Kobara Kenichi Sensei](https://mjer-iaido.github.io/en/about/#chairman-kobara-kenichi). 
 
-We offer iaido classes for adults and youth in Alameda, Emeryville, and most recently College of Marin.
+**Genwakan** is an official dojo of [World MJER Iaido Federation](https://mjer-iaido.github.io/en/) offering iaido classes for adults and youth in the San Francisco Bay Area--in Alameda, Emeryville, and at College of Marin.
 
 ## Alameda
 ![Alameda](/assets/images/Alameda.jpg)    
